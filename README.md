@@ -38,7 +38,7 @@ This event is **completely free**, but seats are limited, and registration is re
 
 👉 [**Sign Up and get Zoom link Here**](#) (Valid sign up before 15th October 2024 10:00 AM UTC+2)
 
-We look forward to your participation. See you on **18th October 2024** for a transformative learning experience!
+We look forward to your participation. See you on **18th October 2024** for a great learning experience!
 
 ---
 **Note:** Ensure you have a stable internet connection and access to the Zoom platform. Details for joining the session will be sent to you upon registration.
