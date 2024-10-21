@@ -1,6 +1,6 @@
 # **PRINCE2 Agile™ Online Event - Free Webinar**
 
-### Unlock the Power of Agile Project Management with PRINCE2!
+### Unlock the Power of Agile Project Management with PRINCE2
 
 We are excited to invite you to an exclusive **PRINCE2 Agile™ Online Event**, a comprehensive and free webinar designed for professionals and enthusiasts eager to integrate the flexibility of Agile with the proven framework of PRINCE2. This event is the perfect opportunity to deepen your understanding and learn directly from **industry-leading experts**.
 
