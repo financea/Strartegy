@@ -42,3 +42,4 @@ We look forward to your participation. See you on **18th October 2024** for a tr
 
 ---
 **Note:** Ensure you have a stable internet connection and access to the Zoom platform. Details for joining the session will be sent to you upon registration.
+
